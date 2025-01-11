@@ -1,1 +1,2 @@
-
+# My reflection
+The information that I have gained from this talk is that there are a lot of job opportunities in ICT field for fresh graduates. As I can see from the EY consulting company, they develop a platform to help the clients to improve and transform their operations through effective technology solutions. In short, I found that ICT consultant job is playing an important role in all industries. And, it is also one of the best careers of my ideal job in the future.
