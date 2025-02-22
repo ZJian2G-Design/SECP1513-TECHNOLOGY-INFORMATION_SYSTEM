@@ -1,5 +1,7 @@
 # My Reflection
 
+Design Thinking Video--- https://youtu.be/sUAvmlWG5hU?si=iUvZiT-nc-4jPIqs
+
 a. What is your goal/dream with regard to your course/program?
 
 My goal with my current course/program is to become a skilled and innovative designer, with a focus on creating users’ solutions that address real-world challenges.
